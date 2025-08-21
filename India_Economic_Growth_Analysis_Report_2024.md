@@ -173,5 +173,6 @@ development, and adaptation to global economic changes.
 
 ---
 
-*Report generated using AI-enhanced economic analysis tools*
+
 *Data current as of: August 2025*
+
